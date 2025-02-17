@@ -1,5 +1,5 @@
 Welcome to Dezzerts by Aiza!
-I specialize in creating delicious brownies and other sweets, made with love and care. Whether you're here to explore our menu, learn more about our story, or place an order, we’re excited to share our creations with you.
+I specialize in creating delicious brownies and other sweets, made with love and care. Whether you're here to explore our menu, learn more about my story, or place an order, Im excited to share my creations with you.
 
 About
 
